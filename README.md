@@ -20,7 +20,7 @@ Sou apaixonado por tecnologia e estou em transição de carreira, saindo do vare
 
 ## 📫 Como me encontrar
 
-- [LinkedIn](https://www.linkedin.com/in/erick-zaratini-4b9a57243/))
+- [LinkedIn](https://www.linkedin.com/in/erick-zaratini-4b9a57243/)
 - [GitHub](https://github.com/ErickZaratini)
 - [Instagram](https://instagram.com/erick.zaratini)
 - Email: zaratinidacrus@gmail.com
